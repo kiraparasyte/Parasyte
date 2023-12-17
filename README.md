@@ -1,3 +1,4 @@
 # Parasyte
 RUN THE FILE AND YOURE GOOD TO GO!
 THIS NUKE IS IN PROGRESS...
+i dont Own this.
